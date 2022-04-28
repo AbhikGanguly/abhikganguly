@@ -13,7 +13,7 @@ Here are some ideas to get you started:
 - 📫 How to reach me: abhikganguly15aug@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: Love the Beatles, Bob Dylan and the Beach Boys.
---> Hirok Raja er desh
+--> Hirok Raja er deshe
 **pather panchali**
 
 *aranyer din ratri*
